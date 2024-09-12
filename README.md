@@ -1,4 +1,3 @@
-I hate the outside ! 404
-It makes me feel a little better here 
+:D
 ----------------
 IRAN - Mashhad - 2003 - 
